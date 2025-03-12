@@ -6,4 +6,6 @@ Sources:
 
 https://freesound.org/people/Timbre/sounds/552395/
 https://www.tiktok.com/@nathalievazquez01/video/7397179880783219999?_r=1&_t=ZT-8ubBM41xWGJ
-https://www.tiktok.com/@koobydoobydoobydoo/video/6722624318552968453?_t=ZT-8ubCCm1a19C&_r=1
+https://www.tiktok.com/@koobydoobydoobydoo/video/6722624318552968453?
+https://freesound.org/people/Universfield/sounds/749933/
+https://www.tiktok.com/@thedbknews/video/7360728630474870058?_r=1&_t=ZT-8ucyYoDFqmc
