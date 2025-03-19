@@ -24,17 +24,24 @@ https://www.tiktok.com/@thedbknews/video/7360728630474870058?_r=1&_t=ZT-8ucyYoDF
 
 https://www.tiktok.com/@abc7newsbayarea/video/7319958870233746734?_r=1&_t=ZT-8uoroAwgAzj by ABC7newsbayarea (license: Fair use)
 
-https://www.theinvadingsea.com/2024/06/18/stanley-cups-reusable-water-bottles-single-use-plastics-waste-co2-emissions-social-media/ Image from Kristan Reynolds
+https://www.theinvadingsea.com/2024/06/18/stanley-cups-reusable-water-bottles-single-use-plastics-waste-co2-emissions-social-media/ Image from Kristan Reynolds (license: Fair use)
 
-https://aquaultraviolet.com/2023/12/05/comparing-plastic-versus-steel-water-bottles/ Image from Aqua Ultraviolet
+https://aquaultraviolet.com/2023/12/05/comparing-plastic-versus-steel-water-bottles/ Image from Aqua Ultraviolet  (license: Fair use)
 
-https://thehustle.co/pass-the-ginormous-water-stanley-is-hot-right-now Image by Ben Berkley from The Hustle 
+https://thehustle.co/pass-the-ginormous-water-stanley-is-hot-right-now Image by Ben Berkley from The Hustle  (license: Fair use)
 
-https://www.bottlepro.net/hydration-blog/what-is-the-best-water-bottle-and-which-one-should-you-get-the-ultimate-guide Image by BottlePro
+https://www.bottlepro.net/hydration-blog/what-is-the-best-water-bottle-and-which-one-should-you-get-the-ultimate-guide Image by BottlePro  (license: Fair use)
 
-https://www.buzzfeed.com/angelicaamartinez/stanley-owala-hydroflask-review Image by Angelica Martinez from BuzzFeed
+https://www.buzzfeed.com/angelicaamartinez/stanley-owala-hydroflask-review Image by Angelica Martinez from BuzzFeed  (license: Fair use)
 
-https://www.amazon.com/Adjustable-Hydrapeak-Diameter-6mm-10mm-Dishwasher/dp/B0CL95YG8Q?th=1 Image by YouCox from Amazon 
+https://www.amazon.com/Adjustable-Hydrapeak-Diameter-6mm-10mm-Dishwasher/dp/B0CL95YG8Q?th=1 Image by YouCox from Amazon (license: Fair use)
+
+https://www.istockphoto.com/photo/woman-showing-x-sign-with-her-hands-gm514554612-88150899?searchscope=image%2Cfilm Image by Grinvalds by IStock (license: Fair use)
+
+
+https://thinkingfrugal.com/16-tips-for-a-successful-no-spend-challenge/ Image from Angie by Thinking Frugal (license: Fair use)
+
+https://x.com/portlandwater/status/1176926682109771776 Image by Portland Water Bureau from X (license: fair use)
 
 ## Sources
 Chow, D. (2024, February 9). The thirst for Stanley Cups raises questions on how green stainless steel water bottles really are. NBCNews.com. https://www.nbcnews.com/science/environment/thirst-stanley-cups-raises-questions-green-stainless-steel-water-bottl-rcna136166 
