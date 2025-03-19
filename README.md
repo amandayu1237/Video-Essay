@@ -22,7 +22,22 @@ https://freesound.org/people/Universfield/sounds/749933/ by Universfield (licens
 
 https://www.tiktok.com/@thedbknews/video/7360728630474870058?_r=1&_t=ZT-8ucyYoDFqmc by Thebdknews (license: Fair use)
 
+https://www.tiktok.com/@abc7newsbayarea/video/7319958870233746734?_r=1&_t=ZT-8uoroAwgAzj by ABC7newsbayarea (license: Fair use)
+
+https://www.theinvadingsea.com/2024/06/18/stanley-cups-reusable-water-bottles-single-use-plastics-waste-co2-emissions-social-media/ Image from Kristan Reynolds
+
+https://aquaultraviolet.com/2023/12/05/comparing-plastic-versus-steel-water-bottles/ Image from Aqua Ultraviolet
+
+https://thehustle.co/pass-the-ginormous-water-stanley-is-hot-right-now Image by Ben Berkley from The Hustle 
+
+https://www.bottlepro.net/hydration-blog/what-is-the-best-water-bottle-and-which-one-should-you-get-the-ultimate-guide Image by BottlePro
+
+https://www.buzzfeed.com/angelicaamartinez/stanley-owala-hydroflask-review Image by Angelica Martinez from BuzzFeed
+
+https://www.amazon.com/Adjustable-Hydrapeak-Diameter-6mm-10mm-Dishwasher/dp/B0CL95YG8Q?th=1 Image by YouCox from Amazon 
+
 ## Sources
 Chow, D. (2024, February 9). The thirst for Stanley Cups raises questions on how green stainless steel water bottles really are. NBCNews.com. https://www.nbcnews.com/science/environment/thirst-stanley-cups-raises-questions-green-stainless-steel-water-bottl-rcna136166 
 
-Muktavaram, L. (n.d.). Owalas & Overconsumption: Water Bottle Micro-Trends Must Stop. The Wesleyan Argus. http://wesleyanargus.com/2025/02/14/owalas-overconsumption-water-bottle-micro-trends-must-stop/ 
+Reynolds, K. (2024, June 18). Reusable Water Bottle Trends can lead to overconsumption and environmental harm . The Invading Sea. https://www.theinvadingsea.com/2024/06/18/stanley-cups-reusable-water-bottles-single-use-plastics-waste-co2-emissions-social-media/ 
+
