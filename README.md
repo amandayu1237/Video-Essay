@@ -8,7 +8,7 @@ While creating this video, I engaged with ongoing conversations about branding, 
 
 The research and production process was challenging. Editing in Premiere Pro was a very different learning curve compared to Audacity —I experimented with layering visuals, adding transitions, and adjusting pacing to ensure my argument flowed naturally. The feedback from the workshops was helpful as I was refining my final project. Early drafts included too much general discussion about putting transitions in between clips and doing more voiceover instead of showing me speaking. 
 
-YouTube link to video introduction: https://youtu.be/lsxfwtiG1Fw
+YouTube link to video introduction: https://youtu.be/rTL3-FUBh04?si=AXjyV4888cXebyMC
 
 ## Assets:
 
