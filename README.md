@@ -43,6 +43,10 @@ https://thinkingfrugal.com/16-tips-for-a-successful-no-spend-challenge/ Image fr
 
 https://x.com/portlandwater/status/1176926682109771776 Image by Portland Water Bureau from X (license: fair use)
 
+https://myplasticbusinesscard.com/product/32-oz-polar-camel-metal-water-bottles/ Image by My Plastic Business Card (license: fair use)
+
+https://www.insidehook.com/wellness/64-ounce-water-bottle-became-lifestyle Image by Logan Mahan by Inside Hook (license: fair use)
+
 ## Sources
 Chow, D. (2024, February 9). The thirst for Stanley Cups raises questions on how green stainless steel water bottles really are. NBCNews.com. https://www.nbcnews.com/science/environment/thirst-stanley-cups-raises-questions-green-stainless-steel-water-bottl-rcna136166 
 
